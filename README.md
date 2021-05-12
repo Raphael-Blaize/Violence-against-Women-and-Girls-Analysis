@@ -44,6 +44,7 @@ This is a problem that not only affects victims of violence and their families, 
 * Silivia-Barasra - silviabarasa16@gmail.com
 * Sydney Tsuma - sydneytsuma1@gmail.com
 * Ann Nyambura - anyambura5@gmail.com
+* Gloria Kerubo - kerubogloria27@gmail.com
 
 ### Methods Used
 * Descriptive Statistics
